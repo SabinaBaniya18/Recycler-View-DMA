@@ -6,4 +6,6 @@
 
 ![homework1](https://user-images.githubusercontent.com/78713326/111764882-d0567e00-88cb-11eb-9a9f-23653ed391da.JPG)
 
+![homework2](https://user-images.githubusercontent.com/78713326/111765000-f4b25a80-88cb-11eb-94b3-b686b8bd7ac5.JPG)
+
 
