@@ -8,4 +8,7 @@
 
 ![homework2](https://user-images.githubusercontent.com/78713326/111765000-f4b25a80-88cb-11eb-94b3-b686b8bd7ac5.JPG)
 
+![task2](https://user-images.githubusercontent.com/78713326/111765061-085dc100-88cc-11eb-8007-1ccc3590ae5f.JPG)
+
+
 
